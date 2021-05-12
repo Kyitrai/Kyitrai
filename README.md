@@ -2,7 +2,7 @@
 
 Socially, I'm very introverted.
 And if it matters to you: Straight/White/CIS/privileged/he/him.
-I support the LBGTQ+, the destruction of discrimination, and all my peers and friends in their endeavors to improve
+I support LBGTQ+, the destruction of discrimination, and all my peers and friends in their endeavors to improve
 their life, knowledge, and the space around them.
 
 My career has brought me through a lot of enterprise spaces: Business Intelligence, Enterprise/Business Reporting,
